@@ -1,0 +1,1 @@
+# GetInSync-Pricing-Table
